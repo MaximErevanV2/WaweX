@@ -1,4 +1,4 @@
 # WaweX
 Wawe X Roblox Executor
-Currently still in development
+OFFICIAL EXECUTOR! ONLY DOWNLOAD HERE
 
